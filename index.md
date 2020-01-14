@@ -1,5 +1,3 @@
-# Input für dein Leben
+# Input für dein Glaubensleben
 
-![alt text](input-fuer-dein-glaubensleben-01-2020-1.png "front")
-
-![alt text](input-fuer-dein-glaubensleben-01-2020-2.png "back")
+![alt text](Plakat-input-fuer-dein-glaubensleben-01-2020-1.png "poster")
