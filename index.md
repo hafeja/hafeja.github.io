@@ -7,7 +7,9 @@
 ### .. ist stellvertretend für schuldige Menschen gestorben
 ### .. möchte allen Menschen ihre Schuld vergeben
 ### .. wird bald alle Menschen gerecht richten
+<br/>
 
-#### Es gibt nichts Wichtigeres, als eine persönliche Beziehung zu Jesus Christus zu pflegen und die Bibel zu lesen.
-# 
+#### Es gibt nichts Wichtigeres, als eine persönliche Beziehung zu Jesus Christus zu pflegen und die Bibel zu lesen.  
+<br/>
+
 #### Noch nie in der Bibel gelesen? Kein Problem, [hier](https://www.csv-bibel.de/bibel/johannes-1) ist ein guter Startpunkt.
