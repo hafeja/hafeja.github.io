@@ -1,3 +1,11 @@
-# Input für dein Glaubensleben
+# Jesus Christus ..
 
-![alt text](Plakat-input-fuer-dein-glaubensleben-01-2020-1.png "poster")
+### .. ist Gott
+### .. lebt
+### .. tut nichts Böses
+### .. ist stellvertrend für sündige Menschen gestorben
+### .. möchte allen Menschen ihre Schuld vergeben
+### .. wird diese Erde gerecht richten
+
+#### Das die Bibel, die selbst "die Wahrheit" ist.
+
