@@ -3,7 +3,7 @@
 ### .. ist Gott
 ### .. lebt
 ### .. tut nichts Böses
-### .. ist stellvertrend für schuldige Menschen gestorben
+### .. ist stellvertretend für schuldige Menschen gestorben
 ### .. möchte allen Menschen ihre Schuld vergeben
 ### .. wird bald alle Menschen gerecht richten
 
