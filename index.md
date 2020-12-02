@@ -7,6 +7,8 @@
 ### .. möchte allen Menschen ihre Schuld vergeben
 ### .. wird bald alle Menschen gerecht richten
 
-Es gibt nichts Wichtigeres, als eine persönliche Beziehung zu Jesus Christus zu pflegen und die Bibel zu lesen.
+#### Es gibt nichts Wichtigeres, als eine persönliche Beziehung zu Jesus Christus zu pflegen und die Bibel zu lesen.
 
-Noch nie in der Bibel gelesen? Kein Problem, Sie können [hier!](https://www.csv-bibel.de/bibel/johannes-1) gleich anfangen.
+#### Noch nie in der Bibel gelesen? Kein Problem, [hier](https://www.csv-bibel.de/bibel/johannes-1) ist ein guter Startpunkt.
+
+#### Fragen? Zögern Sie nicht: thewordisactive@gmail.com
