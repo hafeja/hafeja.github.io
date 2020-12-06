@@ -15,3 +15,13 @@
 <p style="font-size:16px">Noch nie in der Bibel gelesen? Kein Problem, <a href="https://www.csv-bibel.de/bibel/johannes-1">hier</a> ist ein guter Startpunkt.</p>
 <br>
 <p style="font-size:16px;text-align:center">Fragen? Bitte zögern Sie nicht, mich zu <a href="mailto:thewordisactive@gmail.com">kontaktieren</a>.</p>
+<br>
+<br>
+<br>
+<h5>Impressum</h5>
+<p>
+Inhaltlich verantwortlich gem. §10 Absatz 3 MDStV für diese Seite ist:<br>
+Marcel Greeb<br>
+Hohler Weg 49<br>
+35708 Haiger<br>
+thewordisactive@gmail.com
